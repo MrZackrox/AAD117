@@ -24,6 +24,12 @@ A monogram is the combing/ overlaping of two our more initils of a persons name.
 
 So when I was doing some research for this and another project I came across a really nice monogram for guy called [Charlie Waite](http://www.charliewaite.com/home). I can't find it apart from on his website so you will have to go there and have a look at it. I love how the two letter combine perfectly and what I just realised is that the 'W' is actualy making the circle which is a nice thouch. I just fell that this is a perfect example of a simple but efective monogram. Now what does it mean, does the circle represent him as a person who is complete and the letters edging forward does that say he is all ways on the go, looking to come up with more ideas.
 
-There are more famouse ones that you will know of like the channel logo
+There are more famouse ones that you will know of like the Channel logo, the Louis Vuitton, the Gucci and even the MTV logo is a monogram. Though I am going to try and stay away from these as they are representing a compainies voice not an individual.
 
+With this I got stuck into a massive Google search which lasted long than I care to amite. Though I started to find really nice personal monograms that were just amazing. The monogram below was one of the first ones I saw and I like the detail that was put into it. As you have the two letters 'A' and 'M' combined but I like the use of line wight to signify the letters more clearly. A for the 'A' it is knowen that the downword stroke to the right can thicker. Now this might be a company, but I couldn't find one using this monogram, but to me it fells more personal that the proper comapny monograms.
 
+![Art Machine](http://turbo.designwoop.com/uploads/2011/10/Art-Machine.png)
+
+So then I went on and found this one below. I think someone just hade a clever idea for a monogram and made it as there was no one using it. So in this monogram tou can clearly see that there is an 'H' and 'A' in it. What I like about this is the conjoinment of the two letters, it has been done so simple but it works so well. I also like the font that was used in it with the serif bits lining up to make stright lines. Then teh colour scheme that has been used to me makes it fell that the monogram is on the moon.
+
+![H and A Monogram](http://turbo.designwoop.com/uploads/2011/10/h-a-monogram.png)
