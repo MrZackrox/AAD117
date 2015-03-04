@@ -18,6 +18,12 @@ We then
 Week 1
 ------
 
-With week on starting we wasted no time jumping into our new projects for this semester. So this module is all about exlporing identity, ours and corporate identitys. We are stating og looking at our own identity first as this will give us grounding on how we present our selfs to clients etc.
+With week on starting we wasted no time jumping into our new projects for this semester. So this module is all about exlporing identity, ours and corporate identitys. We are stating of looking at our own identity first as this will give us grounding on how we present our selfs to clients etc. So with this we are given the task of creating a monogram for our selves. What is a monogram? you may ask, but fear not as I have the answer
+
+A monogram is the combing/ overlaping of two our more initils of a persons name. This then cam become their logo which they use to present themselves to people. So in my case it going to be Z,A amd R the letter wich will woven together seamlessly.
+
+So when I was doing some research for this and another project I came across a really nice monogram for guy called [Charlie Waite](http://www.charliewaite.com/home). I can't find it apart from on his website so you will have to go there and have a look at it. I love how the two letter combine perfectly and what I just realised is that the 'W' is actualy making the circle which is a nice thouch. I just fell that this is a perfect example of a simple but efective monogram. Now what does it mean, does the circle represent him as a person who is complete and the letters edging forward does that say he is all ways on the go, looking to come up with more ideas.
+
+There are more famouse ones that you will know of like the channel logo
 
 
