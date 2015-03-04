@@ -30,6 +30,6 @@ With this I got stuck into a massive Google search which lasted long than I care
 
 ![Art Machine](http://turbo.designwoop.com/uploads/2011/10/Art-Machine.png)
 
-So then I went on and found this one below. I think someone just hade a clever idea for a monogram and made it as there was no one using it. So in this monogram tou can clearly see that there is an 'H' and 'A' in it. What I like about this is the conjoinment of the two letters, it has been done so simple but it works so well. I also like the font that was used in it with the serif bits lining up to make stright lines. Then teh colour scheme that has been used to me makes it fell that the monogram is on the moon.
+So I then went on and found this one below. I think someone just had a clever idea for a monogram and made it as there was no one using it. So in this monogram tou can clearly see that there is an 'H' and 'A' in it. What I like about this is the conjoinment of the two letters, it has been done so simple but it works so well. I also like the font that was used in it with the serif bits lining up to make stright lines. Then teh colour scheme that has been used to me makes it fell that the monogram is on the moon.
 
 ![H and A Monogram](http://turbo.designwoop.com/uploads/2011/10/h-a-monogram.png)
