@@ -32,4 +32,20 @@ So I then went on and found this one below. I think someone just had a clever id
 
 ![H and A Monogram](http://turbo.designwoop.com/uploads/2011/10/h-a-monogram.png)
 
-I fell like I could write for days 
+I have more to add here don't you worry.
+
+Monogram
+--------
+
+![H and A Monogram](img/second_sketchs.png)
+![H and A Monogram](img/third_sketchs.png)
+![H and A Monogram](img/logo-try-1.png)
+![H and A Monogram](img/logo-try-2.png)
+![H and A Monogram](img/versions.png)
+![H and A Monogram](img/alphabet.png)
+![H and A Monogram](img/first_wordm.png)
+![H and A Monogram](img/second_wordm.png)
+![H and A Monogram](img/wordmark_s.png)
+![H and A Monogram](img/different_z.png)
+![H and A Monogram](img/wordmark_s2.png)
+![H and A Monogram](img/wordmark_finial_s.png)
