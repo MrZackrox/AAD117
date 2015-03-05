@@ -37,9 +37,20 @@ I have more to add here don't you worry.
 Monogram
 --------
 
+Below you can see what looks like doodles and thats what it is. As soon as we were told to make monograms my hand grew a mind of its own just writing out 'ZAR' in different ways I could think of. I know there is not many different ways but I can all ready see some potential ones coming through.
+
 ![H and A Monogram](img/second_sketchs.png)
+
+Then this was when we were given time to think up of ones. I at that moment had no plan/ grid paper so I was stuck with lined. I managed though to get ideas down onto the page. As you can see I was leaning towards the "ZAR" that has the words 'different colours' around it. For me at this time I could invision this being used at different angles and it still being readable. I could then make it a spining animation on my website to tie in with it being all ways different.
+
 ![H and A Monogram](img/third_sketchs.png)
+
+You can see here that I have brought the idea above into Illustrator and its not turned out how I hopped. Know I probably could have worked with it and made it look nicer but at this time I had something else in the works which was a lot simpler but more effective. You can see this in the top left corner but this was the first initial try at it but as I looked at it something anoyed me about it. I then just for the fun of it made a few other ones but this is as far as the went.
+
 ![H and A Monogram](img/logo-try-1.png)
+
+Unfortantly I have missplaced some of my sketchs so I will have to skip right to the end more and less. So below is my wordmark coming to it finial form. As you can see I had two different ways I could do it. The one in the top left was the way I initial thought of doing it but then I thought that it would look better all being the same. So I decided to make the letter out of five by five grid anf only use a small triangle to make the letter. In my opinion I think this works perfect you can make out each letter and it doesn't look to bad either. I went for this monogram as it uses one of the building blocks from design and it so simple but effective. I then started to over lap them a bit and I started to get an interesting result as you can see. I like how you can still make out the letters below with the sutile colour change on the letters when the are all on top of each other.
+
 ![H and A Monogram](img/logo-try-2.png)
 ![H and A Monogram](img/versions.png)
 ![H and A Monogram](img/alphabet.png)
