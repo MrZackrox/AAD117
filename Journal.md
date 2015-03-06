@@ -88,3 +88,7 @@ Once again this is me still stuck on the 'Z' and trying to get it working and lo
 At this moment in time I was ready to change my name as it just wasn't working out anymore. AS you can see it still looks a bit of and even when I tryed to take this into Illustrator to make it cleaner I was more and less free drawing it. I am not that good yet with the pen tool so I am sad to say I had to give up on this idea and try a new approch.
 
 ![H and A Monogram](img/wordmark_finial_s.png)
+
+This is what I got in the end, I was trying to make it look more hand drawen but couldn't find out a way to do it at this time. I like how 'Reid' is housed by the 'Z' and some of the curves in the 'Z' are nice. I am still trying to do that other idea but at this moment in time I can sadly not get it to work, so this will do for now until I get a bit better with the pen tool. I will probable even re-skecth the whole thing so that it is perfect on paper then I just have to follow the outline.
+
+![H and A Monogram](img/wordmark.png)
