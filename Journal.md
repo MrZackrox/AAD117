@@ -53,7 +53,7 @@ Unfortantly I have missplaced some of my sketchs so I will have to skip right to
 
 ![H and A Monogram](img/logo-try-2.png)
 
-Now below is the monogram in different colours I still wanted to bring the other idea into this stage as I still liked it and wanted to see what it would look like. What I like about this monogram is that it can take on any colout scheme and still look all right.
+Now below is the monogram in different colours I still wanted to bring the other idea into this stage as I still liked it and wanted to see what it would look like. What I like about this monogram is that it can take on any colout scheme and still look all right. I have also thought of a cool business card that I could have, all I need is to buy good card and cut then into business card size. Once I have done this I just need to cut ot the triangles to make the monogram and thats it. I then thought it would be funny to carry around a personalised stamp that has my twitter on it etc. So when I give it to someone I can be like her let me stamp that for you and it could be used as a talking point.
 
 ![H and A Monogram](img/versions.png)
 
