@@ -69,6 +69,10 @@ Now below is the monogram in different colours I still wanted to bring the other
 
 ![H and A Monogram](img/versions.png)
 
+This is the finial monogram up close, with different colour veriation. I think it looks good in any colour which is good for when I am puting it on to things etcs. 
+
+![H and A Monogram](img/final-monogram2.png)
+
 Sense I went with a five by five grid I decided to have a side project and started to make an alphabet from this. As you can see I have more and less got all letters done apart from a few and I fell that they are all readable. I sadly have not taken this any further, though I don't know why as it shouldn't take me that long.
 
 ![H and A Monogram](img/alphabet.png)
