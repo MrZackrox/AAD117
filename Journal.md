@@ -32,13 +32,17 @@ So I then went on and found this one below. I think someone just had a clever id
 
 ![H and A Monogram](http://turbo.designwoop.com/uploads/2011/10/h-a-monogram.png)
 
-I was paddling out in the ocean that is the Internet and I unexpectedly caught a massive wave and I was taken for a wild ride, sorwing to the highest hights. On this enternal wave I found a lot of really nice monograms that I just need to write about.
+I was paddling out in the ocean that is the Internet and I unexpectedly caught a massive wave and I was taken for a wild ride, soaring to the highest hights. On this enternal wave I found a lot of really nice monograms that I just need to write about.
 
 Below you can see one of the first that caught my eye. Get it? I just like how simple it was but it still had so much impact. What added to this impact was the verying colour scheme that they could apply to it. I really like the bottom right one as they added colours to the dots that make up the eye. I can see this logo moving ever so slightly back and forth to give a nice effect on there webpage. The guy who made this is called [Tavish Calico](https://dribbble.com/tavcalico) and even he has a really nice monogram.
 
 ![Focus Logo](https://d13yacurqjgara.cloudfront.net/users/34075/screenshots/1416531/focus-logo_1x.jpg)
 
+I then found this and the reason I like it so much is that I didn't fully understand what was going on in the first look. I took me a few second to see that there is a hidden '9' in the illustration of the man. Now if that isn't amazing I don't know what is. 
+
 ![H and A Monogram](http://logopond.com/logos/2655867757a9479ad90a0cb2237e2b0c.png)
+
+When the wave was coming to an end I found this last one. I just love the use of white space to make up the fox. This agin took me a second to actually see and sometimes is you focus on a different part you cant see it at all. At the start I thought that it was a women not a fox and I still feel that it is sort of meant to look like a women. Then the colour is just simple orange as a foxs main colour is orange.
 
 ![H and A Monogram](https://d13yacurqjgara.cloudfront.net/users/47145/screenshots/1698642/189.gif)
 
