@@ -40,7 +40,7 @@ Below you can see one of the first that caught my eye. Get it? I just like how s
 
 ![H and A Monogram](http://logopond.com/logos/2655867757a9479ad90a0cb2237e2b0c.png)
 
-![H and A Monogram](http://turbo.designwoop.com/uploads/2011/10/h-a-monogram.png)
+![H and A Monogram](https://d13yacurqjgara.cloudfront.net/users/47145/screenshots/1698642/189.gif)
 
 Monogram
 --------
