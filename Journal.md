@@ -32,7 +32,15 @@ So I then went on and found this one below. I think someone just had a clever id
 
 ![H and A Monogram](http://turbo.designwoop.com/uploads/2011/10/h-a-monogram.png)
 
-I have more to add here don't you worry.
+I was paddling out in the ocean that is the Internet and I unexpectedly caught a massive wave and I was taken for a wild ride, sorwing to the highest hights. On this enternal wave I found a lot of really nice monograms that I just need to write about.
+
+Below you can see one of the first that caught my eye. Get it? I just like how simple it was but it still had so much impact. What added to this impact was the verying colour scheme that they could apply to it. I really like the bottom right one as they added colours to the dots that make up the eye. I can see this logo moving ever so slightly back and forth to give a nice effect on there webpage. The guy who made this is called [Tavish Calico](https://dribbble.com/tavcalico) and even he has a really nice monogram.
+
+![Focus Logo](https://d13yacurqjgara.cloudfront.net/users/34075/screenshots/1416531/focus-logo_1x.jpg)
+
+![H and A Monogram](http://logopond.com/logos/2655867757a9479ad90a0cb2237e2b0c.png)
+
+![H and A Monogram](http://turbo.designwoop.com/uploads/2011/10/h-a-monogram.png)
 
 Monogram
 --------
